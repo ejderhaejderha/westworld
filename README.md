@@ -1,1 +1,2 @@
-# westworld
+# westworld Video Game Encode
+Westworld Video Game is newly upcoomigng video game. The video game is based on the HBO popular TV show Westworl. The TV series is full of sci-fi and adventures stroy. The video game is still under process. ZThe characters in the video game are same as  the characters in Westworld TV series. To know more about the characters and Video Game. Watch <a href="http://123movieputlocker.com/westworld-season-2/episodes-7/">Westworld Season 2 Episodes 7 Online</a> trailer. In the trailer you know more about the leading stars in the TV show and video Game.
